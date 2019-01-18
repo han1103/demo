@@ -4,4 +4,5 @@ Hahhshh
 i hope it's not a problem
 jsjsjsjsj
 
-updates in new_updates
+404
+dev dev
